@@ -1,2 +1,1 @@
-Fuck you!
-fuck you too!
+1
